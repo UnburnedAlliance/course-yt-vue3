@@ -1,1 +1,2 @@
-Fuck
+* THIS REPOSITORY, WHATEVER ITS CURRENT CONDITION, ORIGINATED FROM: *
+https://www.youtube.com/watch?v=I_xLMmNeLDY
